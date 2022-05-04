@@ -10,4 +10,4 @@
 
 - 🏀 I play basketball across my freetime!
 
-**Anyways, thats all about me, can't wait to learn more about you 👀 🫵
+**Anyways, thats all about me, can't wait to learn more about you 👀 🫵**
