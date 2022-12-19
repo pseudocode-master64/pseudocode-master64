@@ -8,6 +8,6 @@
 
 - 📫 3418561421@qq.com
 
-- 🏀 I play basketball across my freetime!
+- 🏀 I play basketball during my freetime!
 
 **Anyways, thats all about me, can't wait to learn more about you 👀 🫵**
