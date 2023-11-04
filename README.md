@@ -1,7 +1,5 @@
 **👋 Hi, I’m @pseudocode-master64**
 
-- 👀 I’m looking for elegant codes, you can always hook me up with some sexy codes
-
 - 🌱 I’m currently learning python 
 
 - 👨‍💻 I'm a student
