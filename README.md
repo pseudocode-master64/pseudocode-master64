@@ -4,7 +4,7 @@
 
 - 👨‍💻 I'm a student
 
-- 📫 3418561421@qq.com
+- 📫 frankhou@utexas.edu
 
 - 🏀 I play basketball during my freetime!
 
